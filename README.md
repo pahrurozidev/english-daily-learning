@@ -1,3 +1,12 @@
+> **Saturday, 25 September 2023**
+
+- I will be taking you: saya akan membawa kamu
+- sitting: duduk
+- was away: sedang pergi
+- may relate to this: mungkin memahami ini
+- makeup: riasan
+- quite: cukup
+
 > **Saturday, 24 September 2023**
 
 - desire: keinginan
