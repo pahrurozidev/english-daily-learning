@@ -1,3 +1,7 @@
+> **Saturday, 26 September 2023**
+
+Today I have doing some activity about my personal life and my work. In the morning I start with shower and praying at 5.20 am. Next my activity is to help my mother to prepare will go to hospital which will be delivered with my brother. After that I start with write some daily activity will to completed today. I start to work at 6.30 am with start checking my project code (Optimus.web.app) and fixed some code until 7.30 am. After small work, I doing workout with push up and squat until 8.30 am, Next, I start take breakfast with fried goreng and some rice...very delicious...ahah. And after that, I wash some my clothes and shower. Next, I doing start work again until 11.30 am.
+
 > **Saturday, 25 September 2023**
 
 - I will be taking you: saya akan membawa kamu
