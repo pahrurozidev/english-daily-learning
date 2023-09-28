@@ -1,3 +1,7 @@
+> **Saturday, 28 September 2023**
+
+Today I'm confused about what to say! But I want to say today I have been completed my task at my work. its feel great to be able to completed this task. Doneeee........Until here my notes today, see you next day.
+
 > **Saturday, 27 September 2023**
 
 I am sorry, yesterday I didn't have time to write my english learning outcomes. Because besides forgetting i'm also busy with work. Yesterday in my work I completed workflow change history in backend development untuk 10.30 pm. Yesterday I had a long days...so sadddd
