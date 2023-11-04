@@ -1,16 +1,46 @@
-> **Saturday, 28 September 2023**
+> **Saturday, 4 November 2023**
+I am so sorry I have waste of my time because I dont to learn english every day. Have a month I not to learn english and very sorry I feel wasted my time. I hope tonight I can start to consistence to learn english everyday. Thanks...
+
+> **Saturday, 30 September 2023**
+
+- I kind of: saya agak/seperti
+- so well: begitu bagus
+- Hi what's up: hi apa kabar
+- What are you: bagaimana denganmu
+- What about you: bagaimana denganmu
+- that's why: itu sebabnya
+- anymore: lagi
+- told: diberi tahu
+- I told you: saya sudah beritahu kamu
+- long time: waktu lama
+- but again: sekali lagi
+- really cool: sangat keren
+- english is not so good
+- I'm working: saya sedang bekerja
+- still working on it: masih mengerjakannya
+- all right: baiklah
+- gonna: pergi
+- i'm gonna go: saya akan pergi
+- I think so yeah: saya fikir begitu
+- be honest: menjadi jujur
+
+> **Friday, 29 September 2023**
+
+Today I went to the hospital to take my mother for treatment. I left home at 6.15 am and arrived at 7.00 am. The hospital atmosphere made me feel that the situation is not good. I feel strange in this place and have not been to adjust my situation in this place.
+
+> **Thrusday, 28 September 2023**
 
 Today I'm confused about what to say! But I want to say today I have been completed my task at my work. its feel great to be able to completed this task. Doneeee........Until here my notes today, see you next day.
 
-> **Saturday, 27 September 2023**
+> **Wednesday, 27 September 2023**
 
 I am sorry, yesterday I didn't have time to write my english learning outcomes. Because besides forgetting i'm also busy with work. Yesterday in my work I completed workflow change history in backend development untuk 10.30 pm. Yesterday I had a long days...so sadddd
 
-> **Saturday, 26 September 2023**
+> **Tuesday, 26 September 2023**
 
 Today I have doing some activity about my personal life and my work. In the morning I start with shower and praying at 5.20 am. Next my activity is to help my mother to prepare will go to hospital which will be delivered with my brother. After that I start with write some daily activity will to completed today. I start to work at 6.30 am with start checking my project code (Optimus.web.app) and fixed some code until 7.30 am. After small work, I doing workout with push up and squat until 8.30 am, Next, I start take breakfast with fried goreng and some rice...very delicious...ahah. And after that, I wash some my clothes and shower. Next, I doing start work again until 11.30 am.
 
-> **Saturday, 25 September 2023**
+> **Monday, 25 September 2023**
 
 - I will be taking you: saya akan membawa kamu
 - sitting: duduk
@@ -19,7 +49,7 @@ Today I have doing some activity about my personal life and my work. In the morn
 - makeup: riasan
 - quite: cukup
 
-> **Saturday, 24 September 2023**
+> **Sunday, 24 September 2023**
 
 - desire: keinginan
 - prosperity: kemakmuran
