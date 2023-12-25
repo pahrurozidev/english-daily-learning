@@ -1,3 +1,27 @@
+> **Sunday, 25 December 2023**
+
+- I like your eyes, you look away when you pretend not to care: Saya suka mata kamu, kamu mengalihkan pandangan ketika kamu tidak peduli
+- pretend: berpura pura
+- look away: mengalihkan pandangan
+- away: jauh
+- I like the dimples on the corners of the smile that you wear: Saya suka lesung pipi di sudut senyuman yang kamu berikan
+- corners: sudut
+- dimples: lesung pipi
+- wear: kenakan
+- I like you more, the world may know but don't be scared: Saya lebih suka denganmu, dunia mungkin tahu tapi janganlah takut
+- scared: takut
+- Coz: karena
+- falling: terjatuh
+- deeper: lebih dalam
+- falling deeper: terjatuh lebih dalam
+- Coz I'm falling deeper, baby prepared: Karena aku terjatuh lebih dalam, sayang bersiaplah
+- Love the way that you smell: Suka aromamu
+- Just so I could be near: supaya aku selalu dekat
+- I loved you for so long: Saya senang denganmu selama lama
+- But after all this time, I hope you wait and see: Tapi setelah semua waktu, aku harap kamu menunggu dan melihat
+- Chorus: paduan suara
+- I like the way you try so hard when you play ball with your friends: Aku suka caramu berusaha keras saat bermain bola dengan teman-temanmu
+
 > **Monday, 11 December 2023**
 
 I am learning english in beta.character.ai
