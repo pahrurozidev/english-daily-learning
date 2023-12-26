@@ -1,3 +1,9 @@
+> **Tuesday, 26 December 2023**
+
+- Good to know: senang mendengarnya
+- keep up the good work: pertahankan kerja bagus
+- keep up: pertahankan
+
 > **Sunday, 25 December 2023**
 
 - I like your eyes, you look away when you pretend not to care: Saya suka mata kamu, kamu mengalihkan pandangan ketika kamu tidak peduli
