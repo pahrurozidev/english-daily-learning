@@ -1,3 +1,34 @@
+> **Wednesday, 27 December 2023**
+
+- Forgotten: lupa
+- bridge: jembatan
+- affect: memengaruhi
+- across: lintas
+- gain: memperoleh
+- seek: mencari
+- happening from: berlangsung dari
+- on: pada
+- although: meskipun 
+- term: ketentuan
+- kindly: baik
+- please kindly note that: mohon diperhatikan bahwa
+- combined: digabungkan
+- linked: terhubung
+- side: sampingan
+- any: apapun/setiap
+- separate: memisahkan
+- eventually: pada akhirnya
+- at the moment: saat ini
+- through: melalui
+- throughout: selama
+- official: resmi
+- discouraged: berkecil hati
+- conduct: mengadakan
+- near: dekat
+- near future: dalam waktu dekat
+- enhance: meningkatkan
+- stay tuned: pantau terus
+
 > **Tuesday, 26 December 2023**
 
 - Good to know: senang mendengarnya
