@@ -1,3 +1,33 @@
+> **Thursday, 28 December 2023**
+
+Today, I will be writing about my dream. Able to speak english is my dream. I want to visit many countrys and have hamble environment. Away from vehicle and human noise is the dream of the future. I'm tired of living in a drama. I want to live according to my wishes
+
+- away: jauh
+- noise: kebisingan
+- vehicle: kendaraan
+- tired: lelah
+- accourding: menurut
+
+- I like to study english every day
+- YOu can give me asome tips to improve my english speaking
+- Learning new vocabulary really help me understand english texts
+- do you have any recomendations for good english learning books or resources
+- Saya ingin menguasai tata bahasa Inggris dengan baik: I want to master grammer english well
+- Bagaimana cara terbaik untuk meningkatkan keterampilan mendengar bahasa Inggris saya?: What is the best way to improve my english listening skills?
+- ID: Saya senang bisa berbicara dengan penutur asli bahasa Inggris untuk praktik.
+- ENG: I am glad to be able speak with native speaker english for practice
+- ENG: Translate this sentence into english, please
+- ID: Saya ingin mendapatkan nilai yang baik dalam ujian bahasa Inggris.
+- ENG: I want to get a good grade in the English exam
+- ID: Apakah ada kursus online yang bagus untuk belajar bahasa Inggris?
+- ENG: Are there any good online courses for learning english
+
+- really: sungguh
+- well: baik
+- native: warga asli
+- grade: nilai
+- eg: misalnya
+
 > **Wednesday, 27 December 2023**
 
 - Forgotten: lupa
