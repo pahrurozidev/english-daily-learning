@@ -1,0 +1,12 @@
+{
+  "name": "english-daily-learning",
+  "version": "1.0.0",
+  "description": "> **Thursday, 28 December 2023**",
+  "main": "index.js",
+  "scripts": {
+    "push": "node commit.js"
+  },
+  "keywords": [],
+  "author": "",
+  "license": "ISC"
+}
