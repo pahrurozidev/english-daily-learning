@@ -1,3 +1,18 @@
+> **Saturday, 30 December 2023**
+
+- Saya suka belajar bahasa Inggris setiap hari: I enjoy learning english every day
+- Belajar kosakata baru sangat membantu meningkatkan keterampilan berbahasa saya: Learning new vocabulary is very helpful in improving my language skills
+- Bumi adalah planet ketiga dari Matahari dalam tata surya kita: Earth is the third planet from the Sun in our solar system
+- Bulan adalah satelit alami Bumi: The moon is Earth's natural satellite
+- Tata surya terdiri dari delapan planet utama: The Solar System consists of eight major planet
+- Planet-planet di tata surya ini termasuk Merkurius, Venus, Mars, dan lainnya: The Planets in our Solar System include Mercury, Venus, March and others
+- 
+
+- solar system: tata surya
+- our: kita
+- own: memiliki
+- consists of: terdiri dari
+
 > **Thursday, 28 December 2023**
 
 Today, I will be writing about my dream. Able to speak english is my dream. I want to visit many countrys and have hamble environment. Away from vehicle and human noise is the dream of the future. I'm tired of living in a drama. I want to live according to my wishes
