@@ -1,3 +1,31 @@
+> **Monday, 4 January 2024**
+
+- Korea adalah negara dengan warisan budaya yang kaya: Korean is a country with a rich culture heritage
+- K-drama telah menjadi sangat populer di seluruh dunia: K-drama has become very popular in the whole world
+- Pakaian tradisional yang dipakai selama Chuseok disebut hanbok: The clothing traditional worn during chuseok is call a hanbok
+- Mount Hallasan is the highest peak in South Korea: gunung Halllasan adalah puncak tertinggi di korea selatan
+- Korean cuisine is known for its diverse flavors and use of spices: masakan korea dikenal karena rasa yang beragam dan penggunaan rempah rempah
+
+- culture: budaya
+- heritage: warisan
+- a rich culture heritage: warisan budaya yang kaya
+- has: telah
+- incredible: menakjubkan
+- incredible pupular: sangat populer
+- around: di sekitar
+- during: selama
+- clothing: pakaian
+- worn: dipakai
+- peak: puncak
+- cuisine: masakan
+- known: dikenal
+- diverse: beragam
+- flavors: rasa
+- spices: rempah rempah
+- use of: menggunaan
+- for is diverse flavors: karena rasa yang beragam
+- Got it: mengerti
+
 > **Saturday, 30 December 2023**
 
 - Saya suka belajar bahasa Inggris setiap hari: I enjoy learning english every day
