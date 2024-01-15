@@ -1,3 +1,7 @@
+> **Tuesday, 16 January 2024**
+
+- Hello, Sorry I haven't written or learned a singgle word of english, I'm out of my consistency. Today I promised myself to always study english under any circumstances
+
 > **Monday, 4 January 2024**
 
 - Korea adalah negara dengan warisan budaya yang kaya: Korean is a country with a rich culture heritage
