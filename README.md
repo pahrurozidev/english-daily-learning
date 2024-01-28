@@ -1,3 +1,26 @@
+> **Monday, 29 January 2024**
+
+- lying: berbohong
+- even: bahkan
+- though: meskipun
+- even though i'm lying: padahal ku sedang berbohong
+- hurt: terluka
+- i've hurt you many time: bertubi tubi ku melukaimu
+- used to be: dulu
+- baby: sayang
+- forgive me: maafkan aku
+- miserable: sengsara
+- realized: diwujudkan
+- realize: menyadari
+- just realize: baru sadar
+- with all: dengan sepenuh
+- wasting: menyia nyiakan
+- all this time: selema ini
+- not there: tidak ada
+- consider: menganggap
+- carifice: korbankan
+- your feeling: perasaanmu
+
 > **Tuesday, 16 January 2024**
 
 - Hello, Sorry I haven't written or learned a singgle word of english, I'm out of my consistency. Today I promised myself to always study english under any circumstances
