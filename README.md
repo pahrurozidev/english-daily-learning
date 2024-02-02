@@ -1,5 +1,14 @@
 > **Monday, 29 January 2024**
 
+maybe: mungkin
+imagination: imajinasi
+dream: impian
+and from there, who knows: dan dari sana, siapa tau
+there: disana
+here: disini
+
+> **Monday, 29 January 2024**
+
 - lying: berbohong
 - even: bahkan
 - though: meskipun
