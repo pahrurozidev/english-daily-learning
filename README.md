@@ -1,3 +1,50 @@
+> **Sunday, 4 February 2024**
+
+- setting: pengaturan
+- set: mengatur
+- set up: mengatur
+- it's: itu adalah
+- it is: itu adalah
+- you all see: kamu semua lihat
+- it's no like what you all see: itu tidak seperti apa yang kamu semua lihat
+- I want to meet you: saya ingin bertemu dengan kamu
+- came: datang
+- come: datang
+- came just: datang saja
+- see you: sampai jumpa
+- and came just to see you: dan datang hanya untuk melihat kamu
+- incredible: luar biasa
+- my first incredible love: cinta pertama saya luar biasa
+- draw: menggambar
+- if i draw a day with my good imagination. the end of it is always you: jika saya menggambar sehari dengan imajinasi terbaik saya. akhirnya itu selalu kamu
+- it is: itu adalah
+- i have: saya memiliki
+- i've: saya memiliki
+- ever: pernah
+- never: tidak pernah
+- felt: merasa
+- fell: menjatuhkan
+- feel: merasa
+- since: sejak
+- i was young: saya masih muda
+- i've never felt like this sice i was young: saya tidak pernah merasa seperti ini sejak saya masih muda
+- unfamiliar: asing
+- moments: saat saat
+- this unfamiliar moments: saat yang tidak biasa ini
+- difficult: sulit
+- the word love is still difficult to say: kata cinta tetap sulit diucapkan
+- realize: menyadari
+- realized: menyadari
+- i realize it more by watching you in front of you day by day: saya lebih menyadarinya dengan melihat kamu didepanmu sehari hari
+- day by day: sehari hari
+
+> **Friday, 2 February 2024**
+
+alter: ubah
+drop: menjatuhkan
+delete: hapus
+remove: menghapus
+
 > **Monday, 29 January 2024**
 
 maybe: mungkin
