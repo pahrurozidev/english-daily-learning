@@ -38,6 +38,42 @@
 - i realize it more by watching you in front of you day by day: saya lebih menyadarinya dengan melihat kamu didepanmu sehari hari
 - day by day: sehari hari
 
+> **Saturday, 3 February 2024**
+
+kau selalau memepercayaiku: you always trust me
+padahla ku sedang berbohong: even though i'm laying
+betubi tubi ku melukaimu: i hurt you to much
+cintamu tak berubah: you love has not changed
+tetap seperti dulu: it's still the same as before
+dengarlah sayang: listen dear
+aku cinta padamu: i love you
+maafkan aku: forgive me
+membuat engkau sengsara: make you miserable
+kubaru sadar: I just realized 
+hanya engkau yang mampu: only you are capable
+mencintaiku: love me
+dengan sepenuh hatimu: with all you heart
+selama ini ku sia siakanmu: all this time i wasted you
+menganggap dirimu tak ada: think you don't exist
+kau tak hiraukan hatimu: you don't care about your heart
+kau korbankan perasaanmu: you sacrificed your feelings
+cintamu tak berubah: you love has not changed
+tetap seperti yang dahulu: it's still the same as before
+dengarlah sayang aku cinta padamu: lister dear i love you
+maafkan aku: forgive me
+membuat engkau sengsara: make you miserable
+kubaru sadar: I just realized
+hanya engkau yang mampu: only you are capable
+mencintaiku: love me
+dengan sepenuh hatimu: will all your heart
+dengarlah sayang aku cinta padamu: listed dear i love you
+maafkan aku: forgive me
+membuat engkau sengsara: make you miserable
+kubaru sadar hanya engkau yang mampu mencintaku: I just realized only you capable you love me
+dengan sepenuh hatimu: with all your heart
+ku baru sadar hanya engkau yang mampu: I just realized only you are capable
+mencintaku denga sepenuh hatimu: love me with all your heart
+
 > **Friday, 2 February 2024**
 
 alter: ubah
