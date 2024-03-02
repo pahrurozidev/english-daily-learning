@@ -1,3 +1,11 @@
+> **Sunday, 3 March 2024**
+
+- step out: melangkah keluar
+- norm: kebiasaaan
+- event: acara
+- thank you for having me: terima kasih telah menerima saya
+
+
 > **Sunday, 4 February 2024**
 
 - setting: pengaturan
