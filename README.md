@@ -1,3 +1,25 @@
+> **Thursday, 7 March 2024**
+
+for longer session: untuk sesi yang lebih lama
+short break: jeda sebentar
+recharge: mengisi ulang tenaga
+get ready to focus: bersiap siap untuk fokus
+daily progress: kemajuan harian
+pregress: kemajuan
+clock: jam
+app alerts: peringatan aplikasi
+alerts: peringatan
+during: selama
+session: sesi
+we'll turn off notification and app alerts during each seassion. for longer sessions, we'll add a short break so you can recharge: kami akan mematikan notifikasi dan peringatan aplikasi selama setiap sesi. untuk sesi yang lebih lama, kami akan menambahkan jeda sebentar agar kamu bisa mengisi ulang daya.
+longer: lama
+long: lama
+break: istirahat
+timer: pengatur waktu
+alarm: alarm
+stopwatch: stopwatch
+listening: mendengarkan
+
 > **Sunday, 3 March 2024**
 
 - step out: melangkah keluar
